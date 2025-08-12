@@ -1,0 +1,1 @@
+Hello fellow users and friends of Ante, I am <🤔>. Me and a fellow friend <🤔> have made this repository to spread & leak Ante's utter dogshit code and honestly weird behaviour. Go check out his shit bot code: https://github.com/antefiles/slain
